@@ -1,5 +1,5 @@
 # Fernando L. Briones F.
-Ingeniero Informático
+Ingeniero Informático/Consultor BI
 <br>
 MBA U. de Chile
 <br>
